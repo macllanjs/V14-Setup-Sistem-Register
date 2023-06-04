@@ -1,1 +1,1 @@
-*25 Starred
+*25 Star
